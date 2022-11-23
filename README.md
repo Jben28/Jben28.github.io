@@ -20,9 +20,24 @@ Favorite Songs
 - Labyrinth By taylor Swift
 - Karma By Taylor swift
 - Snow on the Beach by taylor swift
-- Anti- Hero
-- You`re on your owdn Kid
+- Anti- Hero by taylor swift
+- You`re on your own Kid by taylor swift
+- shouldve wouldve couldve
+
 
 ![image](https://user-images.githubusercontent.com/118236447/202342135-bd566aa0-60a4-4b60-8e97-96d3ab507bf3.png)
+
+
+Favorite Games
+
+GENSHIN IMPACT
+
+
+![image](https://user-images.githubusercontent.com/118236447/203457253-5c49395c-d13e-4e9d-a75b-71b7fd2ae8d2.png)
+
+
+
+
+
 
 

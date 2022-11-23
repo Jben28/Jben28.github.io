@@ -24,16 +24,23 @@ Favorite Songs
 - You`re on your own Kid by taylor swift
 - shouldve wouldve couldve
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/3lS1y25WAhcqJDATJK70Mq?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 
 ![image](https://user-images.githubusercontent.com/118236447/202342135-bd566aa0-60a4-4b60-8e97-96d3ab507bf3.png)
 
+Lana Del Ray
 
 Favorite Games
 
 GENSHIN IMPACT
+-Genshin impact is an open game were you explore the world, Build characters, Pull/wish for the event characters you like, and it`s free to play (f2p)
 
 
 ![image](https://user-images.githubusercontent.com/118236447/203457253-5c49395c-d13e-4e9d-a75b-71b7fd2ae8d2.png)
+
+
+![image](https://user-images.githubusercontent.com/118236447/203457571-edefc0dd-460c-4a0f-885c-b2efa1c4896d.png)
 
 
 

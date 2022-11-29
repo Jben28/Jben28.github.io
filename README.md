@@ -34,7 +34,7 @@ Favorite Songs
 Favorite Games
 
 GENSHIN IMPACT
--Genshin impact is an open game were you explore the world, Build characters, Pull/wish for the event characters you like, and it`s free to play (f2p)
+-Genshin impact is an open world game were you explore the world, Build characters, Pull/wish for the event characters you like, and it`s free to play (f2p)
 
 
 ![image](https://user-images.githubusercontent.com/118236447/203457571-edefc0dd-460c-4a0f-885c-b2efa1c4896d.png)
